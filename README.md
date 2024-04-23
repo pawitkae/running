@@ -29,6 +29,6 @@ For trail shoes:
 
 Finally, upon applying the filter analysis, I realized that the wide "Midfoot fit" is the most essential feature determining whether I can wear that shoe properly. The hypothesis behind this is due to my flat feet, which increase the volume of the midfoot. The over-pronation induces the medial arch strike; hence, the feet adapt to have more volume support. 
 
-The finding suggests that, although I used common wide shoes such as Adidas Adizero Boston 12 and Nike Invincible Run 3, I also feel not comfortable with them. Moreover, those shoes with my inappropriate running leading to the injury. 
+The finding suggests that, although I used common wide shoes (but tight midfoot) such as Adidas Adizero Boston 12 and Nike Invincible Run 3, I also feel not comfortable with them. Moreover, those shoes with my inappropriate running leading to the injury. 
 
 ### The right shoe is the shoe that you feel most comfortable in.
